@@ -1,2 +1,0 @@
-jaymanu.github.io
-=================
